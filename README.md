@@ -1,7 +1,7 @@
 <p align="center">
-◠ &nbsp; &nbsp; Boo! . . _ I Have 3 Styles For Skin too :^) .. _ <br>
-` &nbsp; &nbsp; ◡ ♡ Playing PonyTown with My friends . - <br>
-&nbsp; &nbsp; ◠ &nbsp; &nbsp; `
+◠ &nbsp; Boo! . . _ I Have 3 Styles For Skin too :^) .. _ <br>
+` &nbsp; ◡ ♡ Playing PonyTown with My friends . - <br>
+&nbsp; ◠ &nbsp; `
 </p>
 
 <p align="center">
